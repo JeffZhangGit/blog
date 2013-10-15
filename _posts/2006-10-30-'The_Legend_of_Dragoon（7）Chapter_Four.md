@@ -1,0 +1,60 @@
+---
+author: jeffzhang
+comments: true
+date: 2006-10-30 08:41:35+00:00
+layout: post
+title: 'The Legend of Dragoon（7）Chapter Four: Moon and Fate'
+wordpress_id: 228
+categories:
+- ———讨论———
+---
+
+[](http://photo.blog.sina.com.cn/showpic.html#blogid=57f94311010005eq&url=http://static2.photo.sina.com.cn/orignal/57f94311eb21771a05d61)[](http://photo.blog.sina.com.cn/showpic.html#blogid=57f94311010005eq&url=http://static12.photo.sina.com.cn/orignal/57f943114e7e51eb16f9b)[](http://photo.blog.sina.com.cn/showpic.html#blogid=57f94311010005eq&url=http://static12.photo.sina.com.cn/orignal/57f943114e7e51eb16f9b)Even though our heroes make it to the Signet Sphere before Zieg, Zieg does come and easily breaks the Signet Sphere. In a rage, Dart transforms into a Dragoon, but is easily and quickly defeated by his father. The earth begins to quake as the Moon that Never Sets is falling and the Divine Tree is growing to catch the Moon.
+
+[![The Legend of Dragoon（7）Chapter Four: Moon and Fate](http://simg.sinajs.cn/blog7style/images/common/sg_trans.gif)](http://photo.blog.sina.com.cn/showpic.html#blogid=57f94311010005eq&url=http://static2.photo.sina.com.cn/orignal/57f94311eb21771a05d61)
+
+When all seems lost, Coolon comes to the rescue and carries the Dragoons to the Moon that Never Sets. However, as they near the Moon, a swarm of Virage emerges and hits Coolon, causing him to crash land and die in the Moon that Never Sets. There's no turning back for our heroes now as they make it up to the Moon that Never Sets.
+
+Along the path, Rose points out shiney objects...these are dried up fruit from the Divine Tree. The fruits were never born into species. She also notes that the air streams that come from the tree are signals that the tree is readying itself for the birth of the Virage Embryo.
+
+As they progress up the path, a catipillar begins to follow them. Farther up the path, the Catipillar attacks. First as itself, then as a pupa, then as the moth known as Imago. After his defeat, our heroes enter the final stage of the Moon that Never Sets. The moon is pulsing, and all is white. Our heroes awaken to find themselves in...
+
+Hey! This can't be the moon! It looks more like a valley in Mille Seseau! The scene is familiar to mainly Miranda. She seperates from the group for awhile and finds herself in a most familiar spot. It is a corner of the woods with the light shining on a single rose. Miranda experiences a flashback...it seems that Miranda's mother hated her life because she married Miranda's father, who is supposedly lazy and uses her hard-earned money. Therefore, right in front of Miranda's eyes, Miranda's mother went off with another man and abandoned Miranda and her father.
+
+Suddenly, the single rose comes alive, and in the rose Miranda sees her mother and Miranda's anger towards her rises. The Death Rose asks for forgiveness, but Miranda doesn't forgive easily. She explains that her father became ill and died and she was left all alone until Queen Theresea adopted her. Death Rose explains that she worked hard so Miranda wouldn't starve. She also wanted to take Miranda back but her father wouldn't let her. After several rounds of fighting, Death Rose tells Miranda that she was named after the Goddess of Mille Seseau, who was pure and loved by everybody. After several more rounds, Miranda sees the love her mother had for her and forgives her mother. After Dart comes into the scene, she explains everything. She said she went to the Crystal Palace to preach love, but wound up fighting to soothe her uneasiness.
+
+As the team continues through the moon, it just gets weirder and weirder. They find themselves in a Serdian Shop, and below is a little girl who looks strikingly familiar to Haschel...it's none other than Claire, his missing daughter! He follows her through the city of Minitos, and finally corners her. In a rage, she attacks her father.
+
+Haschel tries to explain to his daughter that he never meant to hurt her. Rogue art was used to give life, not hurt people. Claire refuses to listen, and looks like she is possessed. Ever since she was little, she was gifted with the God of War that beckons death. She never meant to hurt anyone, but she couldn't help it. This War God, Nagarujuna, demonized her on the Moon, giving her strength that far outpasses her father. However, by awakening the Mind's Eye, Haschel heals his daughter.
+
+Outside of the Inn, the group finds themselves just outside the gate of Emperor Doel's castle...20 years in the past, that is, for a little boy named Lavitz is there wishing to be a knight just like his father. Down the stairs on the left is a teleporter that leads our heroes to the clouds. Although the ground is transparent, Rose confirms that it is safe to walk on. However, after making their way north, the group is attacked by Michael the Dark Dragon. The group is seperated as Rose and Dart fall down one whole and the other five fall down another.
+
+The scene switches to Albert and the others, who are in the Land of the Gigantos. Kongol experiences flashbacks here...bandits killed his people, but Emperor Doel came and got rid of the bandits and adopted Kongol, the only survivor. The group goes up the stairs and Kongol once again remembers Emperor Doel and his words of strength. Kongol goes inside a temple to get the strength he needs to help Dart. Inside the temple, Kongol finds his brother, Indora, whom he must defeat to show his strength.
+
+After Indora's defeat, he gives Kongol his axe and for the first time, praise; also, if he doesn't have it, his Dragoon Spirit. The group goes back to the Inn and waits for Dart and Rose.
+
+Meanwhile, Dart and Rose are in the mountains looking for Rose's Vassal Dragon, Michael. Along the way they see baby dragons, or pseudodragons. Up the mountain they go, until they find Michael. Rose explains that in order to get a Dragoon Spirit, a dragon must be sacrificed in some way, like death or becoming a slave to humans. Rose has a flashback in which she killed the Darkness Dragon, that is, Michael's mother, and took the Dragoon Spirit. She then adopted the Darkness Dragon's pseudodragon to be her Vassal Dragon. With the help of Zieg, she named him Michael, the Black Burst Dragon. However, Michael turned against Rose because he became prideful in his abilities as the strongest dragon next to the Divine Dragon. Although he has a strong defense and attack and agility, Michael's heart is weak. His armor may be high in endurance, but his core (heart) is not. After many battles Dragons became savage and won't listen to their Dragoon leaders, so to save themselves, Rose must kill Michael.
+
+After his defeat, Rose and Dart head back to the Inn. Once reunited the group goes back out to where Emperor Doel's castle is...it seems that Emperor Doel wants to speak with Albert. Doel wishes to settle his differences with Albert. Doel said that he killed Carlos (Albert's father) because Carlos was imcompetant, and because only Doel had the power needed to bring peace. However, Doel abused his power. In reality, it seems, Carlos had faith in Doel and wanted to him to take the throne. Albert forgives his uncle and their differences are settled.
+
+[](http://photo.blog.sina.com.cn/showpic.html#blogid=57f94311010005eq&url=http://static2.photo.sina.com.cn/orignal/57f94311eb21771a05d61)[](http://photo.blog.sina.com.cn/showpic.html#blogid=57f94311010005eq&url=http://static12.photo.sina.com.cn/orignal/57f943114e7e51eb16f9b)[![The Legend of Dragoon（7）Chapter Four: Moon and Fate](http://simg.sinajs.cn/blog7style/images/common/sg_trans.gif)](http://photo.blog.sina.com.cn/showpic.html#blogid=57f94311010005eq&url=http://static12.photo.sina.com.cn/orignal/57f943114e7e51eb16f9b)
+
+Our team now heads up into the clouds again, this time making their way to a Wingly fortress, where the Archangel (a Wingly guardian) awaits for Meru. She goes in, and the Archangel sees her as a traitor to the Winglies. He thinks she is silly and wants her to leave the "feebleminded" humans. Archangel wants Winglies to rule over humans, just as they did before. He believes Winglies can destroy any species that rebel against them. Though Archangel claims that Meru created him with her thoughts against humans, she quickly wins the battle by admiting full-heartedly that she loves humans.
+
+The Dragoons are at the final bend when they come into the strangest place on the Moon. Geometric objects are everywhere, with the staticy screens showing the Moon. The team goes through the weird hallways until they hear Shana's whisper. They follow it, only to be confronted by a Super Virage similar to the one in the Forbidden Land, only this one won't kill itself.
+
+After a fierce battle, the group wonders whether or not that Virage was Shana, but the idea quickly escapes their mind in the next scene. There they see Shana in a gel-like cell, with Zieg watching as she becomes the Virage Embryo. As the Dragoons attack, Zieg counterstrikes and steals Dart's Dragoon Spirit. The Red-Eye Dragoon Spirit still sees Zieg as its owner, allowing Zieg to become a Dragoon. The group must fight Zieg without the aid of Dart's Dragoon Spirit.
+
+After Zieg's defeat, however, the team experiences a terrible surprise...Zieg was possessed by Melbu Frahma the whole time! Melbu explains that he has been waiting 10,000 years for the Virage Embryo. He transmigrated into Zieg's body when Zieg tried to kill Melbu Frahma, and this caused Zieg to become petrified. After 10,000 years, the spell wore off. Zieg married Claire and had a son named Dart. However, when Zieg tried to save Neet when it was attacked by the Black Monster, he attempted to become a Dragoon, but by doing so the burst of energy released Melbu Frahma, and from then on Melbu had been in control of Zieg. Now that the real Melbu Frahma is free, he wishes to take over the world once again by becoming the Virage Embryo himself. Just as Shana is morphing, Melbu switches places with her. Now he is the God of Destruction, and is ready to destroy the Dragoons when...
+
+LLOYD comes into the picture! Lloyd proclaims that he cannot die with the wrong god around, and there is no room for the God of Destruction in Lloyd's utopia. Lloyd and Dart attempt to defeat Melbu Frahma. While Lloyd is doing a swift job at first, Melbu manages to stab Lloyd in the heart, causing the noble Wingly to fall. In his last moments, Lloyd gives Rose the Dragon Buster and Dart the Divine Dragoon Spirit...thus enabling Dart to become the Divine Dragoon, the most powerful of all!
+
+After this, the final battle begins...
+
+Melbu screams in pain and attempts to kill the Dragoons with the last of his strength. Zieg and Rose, knowing what they must do, take the Dragon Buster and attack Melbu Frahma. They tell the others to get out of the Moon, but not to worry about them. Dart flies down and picks up Shana and heads out. Melbu attempts to get rid of them with his electric attack, but Zieg and Rose slice through him with the Dragon Buster. Rose and Zieg are finally together once again, forever, and Rose thanks Dart as she and her love go into the next world.
+
+The team makes it out and watches as the Moon that Never Sets explodes. In sadness, Dart yells out to Rose and his father one last time.
+
+Back in Rogue, Haschel is teaching Kongol the way of Rogue art. Miranda is with her sisters once again, with Wink recovering quickly. Everyone in Fletz is as happy as ever, especially Lisa and Nello. Meru introduces her fiance, Guaraha, to the human world, and is having a "spinning" time. Albert and Emille are now happily married. Dart visits Lavitz' mother, who welcomes him with open arms. Back in Seles, the townspeople are rebuilding Seles. Everyone there is overjoyed that both Shana and Dart have returned safely, and it looks like the two will finally be able to settle down together and live happily ever after.
+
+Then, at the end, the white and purple bird that has been following everyone lands next to a white and red bird. Below, the Dragoon Spirits of the Darkness Dragoon and Red-Eye Dragoon lay waiting for the next legend...
