@@ -1,0 +1,6 @@
+markdown: rdiscount
+permalink: /:year/:month/:title/
+url: http://jeffzhang.com/blog
+author: JeffZhang
+pygments: true
+paginate: 3
