@@ -48,7 +48,6 @@ Convert all the wordpress to one XML file by the Export->All the content
 2.  You may write other scripts to update the md files as you wish.
 <br/>
 <br/>
-> Written with [StackEdit](http://benweet.github.io/stackedit/).
 
 
   [1]: http://www.apachefriends.org/zh_cn/xampp.html
