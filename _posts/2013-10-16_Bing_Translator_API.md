@@ -62,6 +62,7 @@ tags:
     
 ###Add soap service reference###
 http://api.microsofttranslator.com/V2/Soap.svc
+<br/>
     ServiceReference1.LanguageServiceClient client = new ServiceReference1.LanguageServiceClient();
     string englishName = client.Translate(appID, "中文内容", "zh-cn", "en-us", "text/html", "general");
 
