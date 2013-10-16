@@ -44,7 +44,8 @@ Convert all the wordpress to one XML file by the Export->All the content
 ###Final steps###
 
  1. The exitwp tool convert the WP XML file to files which extention is `.markdown`, we need rename the file extention to `.md` by the following script.
-    ` ren  *.*  *.md`
+<br/>
+` ren  *.*  *.md`
  2. You may write other scripts to update the md files as you wish.
 <br/>
 <br/>
